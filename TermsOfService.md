@@ -1,3 +1,4 @@
+# Terms of Service
 **Effective date: April 1, 2024**
 
 These Terms of Service (the "**Terms**") govern your access to and use of the services provided by Andrei Tsitou LLC ("**we**", "**us**" or "**our**"), namely the mobile applications where these Terms are posted, their websites, email notifications, and any and all related services (collectively, the "**Services**"). These Terms also govern your access to any information, text, graphics, photos, audio, video or other materials made available through the Services (the "**Content**"). PLEASE READ THESE TERMS OF SERVICE CAREFULLY BEFORE ACCESSING OR USING ANY OF THE SERVICES.
